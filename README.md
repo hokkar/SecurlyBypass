@@ -34,8 +34,8 @@ For a strong, reliable VPN that handles Securly and other filters with ease, I h
 
 They offer robust encryption, a wide network of servers, and a proven track record for bypassing restrictions. It's the go-to choice for consistent, private, and unblocked access.
 
-**🔗 Get NordVPN (Get up to 77% off + 3 months extra):**
-**[Click Here](http://vpnleaktester.com/get/nordvpn)**
+**🔗 Get PureVPN (Get up to 85% off + 3 months extra):**
+**[Click Here](http://vpnleaktester.com/get/purevpn)**
 
 
 ### ⚠️ Important Notes
